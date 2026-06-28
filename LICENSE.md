@@ -1,4 +1,4 @@
-# 
+# Elite momentum trading bot templates for Mac OS | Premium momentum trading bot templates for PC Windows. Featuring centralized exchange api and mean reversion strategy — optimized for maximum performance.
 
 
 
